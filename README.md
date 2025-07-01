@@ -1,6 +1,6 @@
 | B L A K E |
 
-##  💵 Dons / Donate
+##  💵 Don / Donate
 
 Si vous souhaitez faire un don / If you would like to make a donation
 

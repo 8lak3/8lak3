@@ -1,12 +1,12 @@
 | B L A K E |
 
-## 🙏 Support
+## 💸 Dons
 
-If you wish to make a donation
+Si vous souhaitez faire un don 
 
-🪙 XMR: 85sZTW44ER3MKnbLhmLwYggc6BjjVW56kSbNN1T79DLDgdg8rgBSXzKfPtdXktXZBZ9s8ttCTgzMiK21k7XYXZsu4cReTMo
+🪙 XMR: 85sZTW44ER3MKnbLhmLwYggc6BjjVW56kSbNN1T79DLDgdg8rgBSXzKfPtdXktXZBZ9s8ttCTgzMiK21k7XYXZsu4cReTMo 
 
-Thanks!
+Merci !
 
 
 
